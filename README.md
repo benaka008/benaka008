@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @benaka008
+- 👀 I’m interested in ...lerning nwe skills
+- 🌱 I’m currently learning ...full stack
+- 💞️ I’m looking to collaborate on ...new business venture
+- 📫 How to reach me ...rnpunith@gmail.com
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
